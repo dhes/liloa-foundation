@@ -30,7 +30,7 @@ In addition there are two floor joists that appear to have been reinforced, as s
 
 In spite of these areas, there are no cracks in the interior walls nor misaligned doors or windows. The floors seem level. 
 
-##Scope of work
+## Scope of work
 
 The owners request and assessment of foundation: Is it secure, or can it be made secure? In addition to the areas or concern we request a inspection of the whole of the foundation and floor joists. This assessment should state any remedial work that may need to be done as well as an estimate of the cost of the proposed work. 
 
