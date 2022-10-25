@@ -32,7 +32,7 @@ In spite of these areas, there are no cracks in the interior walls nor misaligne
 
 ## Scope of work
 
-The owners request and assessment of foundation: Is it secure, or can it be made secure? In addition to the areas or concern we request a inspection of the whole of the foundation and floor joists. This assessment should state any remedial work that may need to be done as well as an estimate of the cost of the proposed work. 
+The owners request an assessment of the foundation and floor joists: Are they secure, or can they be made secure? In addition to the areas or concern we request a inspection of the whole of the foundation and floor joists. This assessment should state any remedial work that may need to be done as well as an estimate of the cost of the proposed work. 
 
 We appreciate your expert advice!
 
